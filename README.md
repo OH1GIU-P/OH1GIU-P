@@ -1,4 +1,4 @@
-Automation specialist/sw developer
+Automation specialist/software developer
 
 You can reach me via Linkedin
 
